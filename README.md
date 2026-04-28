@@ -1,3 +1,5 @@
+![logo](https://github.com/AliKhazaei01/AliKhazaei01/blob/main/ChatGPT%20Image%20Apr%2026%2C%202026%2C%2005_51_08%20PM.png)
+
 <h1 align="center">Ali Khazaei</h1>
 
 <h3 align="center">
